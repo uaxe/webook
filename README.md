@@ -18,6 +18,8 @@
 | MacTalk | 池建强 |        MacTalk-卖桃者说.pdf        | [百度](https://pan.baidu.com/s/12BRJC2pD28s8DV7RUJcWVQ) 提取码: mact |
 | 脑子进煎鱼了  | 陈煎鱼 |         脑子进煎鱼了-Go.pdf          | [百度](https://pan.baidu.com/s/1rudhiZwtWBQwoHO9_3y2yQ) 提取码: cjyl |
 | 量子位     | 量子位 |       量子位-马斯克.pdf (133章)       | [百度](https://pan.baidu.com/s/1BXIC_Y65W9SGr9FmPj4PAQ) 提取码: lzwm |
+| 医林独啸斋     | 医林独啸斋 |       医林独啸斋       | [百度](https://pan.baidu.com/s/1dhLe3bLCFj49OBCD4sVKyA) 提取码: yldx |
+
 
 ### todo
 
